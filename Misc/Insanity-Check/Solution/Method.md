@@ -1,0 +1,1 @@
+In the Discord server of the organizer, there was misc challege it was there as the channel description.
